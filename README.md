@@ -4,5 +4,3 @@
 
 [![IMAGE ALT TEXT HERE](https://img.youtube.com/vi/SbFo7gJ8-Ww/0.jpg)](https://www.youtube.com/watch?v=SbFo7gJ8-Ww)
 
-
-https://www.youtube.com/watch?v=SbFo7gJ8-Ww&ab_channel=mesutdemirci
